@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber securuty and Software Devlopment
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on projects 
-- 📫 Reach me at damorsiraj494@fmail.com
+- 📫 Reach me at damorsiraj494@gmail.com
 - 😄 Pronouns: siraj damor
 -  ⚡ Fun fact: Just here
 
